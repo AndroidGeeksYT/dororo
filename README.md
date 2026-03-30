@@ -13,10 +13,10 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 # 🎥 Season 1
 
 > [!NOTE]
-> Seasons and Episode are from [Ani-One Asia](https://youtube.com/@anioneasia).
+> Seasons and Episodes are from [Ani-One Asia](https://youtube.com/@anioneasia).
 
-- [EP1: The Story of Daigo](https://youtu.be/MYwiT96-Lgs?si=swbZqXLO-uJyMun4)
-- [EP2: The Story of Bandai](https://github.com/AndroidGeeksYT/dororo.git)
+- [📺EP1: The Story of Daigo](https://youtu.be/MYwiT96-Lgs?si=swbZqXLO-uJyMun4)
+- [📺EP2: The Story of Bandai](https://youtu.be/sA49PN7h0iA?si=L6yCbswCvG87vZIb)
 
 
 ---
