@@ -29,6 +29,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP7: The Story of the Jorogumo Silk Spider](https://youtu.be/K08Xa-oPA_Q?si=4HJ_9-cYUyzRcxPF)
 
+- [📺EP8: The Story of Saru](https://youtu.be/OiSHg0zKKDo?si=uZno6-0RU_ahdcql)
+
 ---
 
 # ❤️ Credits / Source
