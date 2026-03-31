@@ -23,7 +23,7 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP4: The Story of the Cursed Sword](https://youtu.be/YkVwXJuBrvw?si=guZc9WtWkL2J_5Y3)
 
-- [📺EP5: The Story of the Mariko Song, Part 1](https://youtu.be/YkVwXJuBrvw?si=guZc9WtWkL2J_5Y3)
+- [📺EP5: The Story of the Mariko Song, Part 1](https://youtu.be/DC62zpJz4xg?si=3Cd2rnzK_81oiDOV)
 
 ---
 
