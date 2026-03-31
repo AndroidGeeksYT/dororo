@@ -27,6 +27,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP6: The Story of the Mariko Song, Part 2](https://youtu.be/yQ7Ayf32nXs?si=nQbUsTVJFQiBbbE3)
 
+- [📺EP7: The Story of the Jorogumo Silk Spider](https://youtu.be/K08Xa-oPA_Q?si=4HJ_9-cYUyzRcxPF)
+
 ---
 
 # ❤️ Credits / Source
