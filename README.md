@@ -17,7 +17,7 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP1: The Story of Daigo](https://youtu.be/MYwiT96-Lgs?si=swbZqXLO-uJyMun4)
 - [📺EP2: The Story of Bandai](https://youtu.be/sA49PN7h0iA?si=L6yCbswCvG87vZIb)
-
+- [📺EP3: The Story of Jukai](https://youtu.be/eOJj_9IYkBE?si=v0MEkf6s_0IxiM7A)
 
 ---
 
