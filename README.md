@@ -43,6 +43,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP14: The Story of Sabame](https://youtu.be/5C8ZbPsv0xI?si=CPKTkqzWP_yEUNWS)
 
+- [📺EP15: The Story of the Scene from Hell](https://youtu.be/uPkrA_orveA?si=_N60gfHyNIjDjNNP)
+
 ---
 
 # ❤️ Credits / Source
