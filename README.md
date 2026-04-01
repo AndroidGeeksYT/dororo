@@ -35,6 +35,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP10: The Story of Tahomaru](https://youtu.be/h-aFTrQ2oGM?si=j87dOXBFe6xd-ZuH)
 
+- [📺EP11: The Story of Banmon, Part 1](https://youtu.be/Zu-8RbMGVNU?si=e4_628oMUkW_iXMe)
+
 ---
 
 # ❤️ Credits / Source
