@@ -37,6 +37,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP11: The Story of Banmon, Part 1](https://youtu.be/Zu-8RbMGVNU?si=e4_628oMUkW_iXMe)
 
+- [📺EP12: The Story of Banmon, Part 2](https://youtu.be/L9uKSAJOWgE?si=3YHVatha1p_tFHE8)
+
 ---
 
 # ❤️ Credits / Source
