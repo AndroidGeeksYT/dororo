@@ -31,6 +31,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP8: The Story of Saru](https://youtu.be/OiSHg0zKKDo?si=uZno6-0RU_ahdcql)
 
+- [📺EP9: The Story of the Mercilessness](https://youtu.be/UhC042lIIUk?si=hH8_UMeR5Q0ZLOW2)
+
 ---
 
 # ❤️ Credits / Source
