@@ -41,6 +41,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP13: The Story of the Blank-faced Buddha](https://youtu.be/8B0ITPBeKQA?si=KJK-rkr0FrPSBisn)
 
+- [📺EP14: The Story of Sabame](https://youtu.be/5C8ZbPsv0xI?si=CPKTkqzWP_yEUNWS)
+
 ---
 
 # ❤️ Credits / Source
