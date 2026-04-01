@@ -33,6 +33,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP9: The Story of the Mercilessness](https://youtu.be/UhC042lIIUk?si=hH8_UMeR5Q0ZLOW2)
 
+- [📺EP10: The Story of Tahomaru](https://youtu.be/h-aFTrQ2oGM?si=j87dOXBFe6xd-ZuH)
+
 ---
 
 # ❤️ Credits / Source
