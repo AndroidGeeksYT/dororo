@@ -45,6 +45,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP15: The Story of the Scene from Hell](https://youtu.be/uPkrA_orveA?si=_N60gfHyNIjDjNNP)
 
+- [📺EP16: The Story of Shiranui](https://youtu.be/LQxS7HES9iU?si=1rXMTVv70VgeFeVv)
+
 ---
 
 # ❤️ Credits / Source
