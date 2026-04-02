@@ -51,6 +51,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP18: The Story of the Cape of No Mercy](https://youtu.be/CqxP9NSnncY?si=kwxC2Bo6tvCpbqGN)
 
+- [📺EP19: The Story of the Amanojaku](https://youtu.be/hucslE6eDJQ?si=P27fDwNFJBXN3V72)
+
 ---
 
 # ❤️ Credits / Source
