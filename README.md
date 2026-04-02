@@ -53,6 +53,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP19: The Story of the Amanojaku](https://youtu.be/hucslE6eDJQ?si=P27fDwNFJBXN3V72)
 
+- [📺EP20: The Story of Nue](https://youtu.be/2ezSNgc_2jE?si=dEh9upwloZkF2yFN)
+
 ---
 
 # ❤️ Credits / Source
