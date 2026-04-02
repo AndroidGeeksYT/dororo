@@ -59,6 +59,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP22: The Story of Nui](https://youtu.be/BKRkICci8sY?si=QqW9cwAeMpk5iYTV)
 
+- [📺EP23: The Story of the Demons](https://youtu.be/aZ0IBP3c6MI?si=uLjFWIbbjbYQaoSb)
+
 ---
 
 # ❤️ Credits / Source
