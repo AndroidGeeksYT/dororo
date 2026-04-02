@@ -47,6 +47,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP16: The Story of Shiranui](https://youtu.be/LQxS7HES9iU?si=1rXMTVv70VgeFeVv)
 
+- [📺EP17: The Story of Questions and Answers](https://youtu.be/bEDHcrPP19Y?si=Xfg1XzT-yY1Jq9K4)
+
 ---
 
 # ❤️ Credits / Source
