@@ -49,6 +49,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP17: The Story of Questions and Answers](https://youtu.be/bEDHcrPP19Y?si=Xfg1XzT-yY1Jq9K4)
 
+- [📺EP18: The Story of the Cape of No Mercy](https://youtu.be/CqxP9NSnncY?si=kwxC2Bo6tvCpbqGN)
+
 ---
 
 # ❤️ Credits / Source
