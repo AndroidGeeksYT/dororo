@@ -55,6 +55,8 @@ The greedy samurai lord Daigo Kagemitsu's land is dying, and he would do anythin
 
 - [📺EP20: The Story of Nue](https://youtu.be/2ezSNgc_2jE?si=dEh9upwloZkF2yFN)
 
+- [📺EP21: The Story of Breaking the Cycle of Suffering](https://youtu.be/GIeP7Y4Eb7g?si=JEIut5rf__vGx0Tk)
+
 ---
 
 # ❤️ Credits / Source
